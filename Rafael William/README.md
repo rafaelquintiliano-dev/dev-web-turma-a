@@ -1,1 +1,0 @@
-Rafael William Dantas Quintiliano
